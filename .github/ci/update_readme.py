@@ -21,7 +21,7 @@ readme_content = f"""# 🔖 {image_title}
 
 if __name__ == '__main__':
     # 写入 README.md 文件
-    with open("../../README.md", "w", encoding="utf-8") as file:
+    with open("README.md", "w", encoding="utf-8") as file:
         file.write(readme_content)
 
     print("README.md 已生成！")
