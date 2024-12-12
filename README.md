@@ -1,5 +1,5 @@
-# 🔖 山峰的“胜利三重奏”
+# 🔖 为节日做好准备
 
-![今日必应壁纸](https://bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![今日必应壁纸](https://bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝 拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)
+> 📝 一品红或圣诞花 (© David Hosking/NPL/Minden Pictures)
