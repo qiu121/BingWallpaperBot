@@ -26,9 +26,11 @@ jobs:
       - name: Install Dependencies
         run: pip install requests
 
-      # 运行 Python 脚本
-      - name: Run Python Script
-        run: python .github/ci/update_readme.py
+      # 运行 Python 脚本以更新 README 和生成提交信息
+      - name: Generate README and Commit Message
+        id: generate_commit_message
+        run: |
+          python .github/ci/update_readme.py > commit_message.txt
 
       # 提交修改到仓库
       - name: Commit and Push Changes
@@ -36,5 +38,6 @@ jobs:
           git config --global user.name "github-actions[bot]"
           git config --global user.email "github-actions[bot]@users.noreply.github.com"
           git add README.md
-          git commit -m "📝 docs: update README [skip ci]" || echo "No changes to commit"
+          # 使用生成的提交信息
+          git commit -F commit_message.txt || echo "No changes to commit"
           git push https://x-access-token:${{ secrets.GITHUB_TOKEN }}@github.com/${{ github.repository }}.git HEAD:${{ github.ref }}
