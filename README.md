@@ -1,5 +1,5 @@
-# 🔖泪水之湖
+# 🔖闪烁的街道和冰峰
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)
+> 📝萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)
