@@ -1,5 +1,5 @@
-# 🔖魔鬼与自然的气息
+# 🔖诞生于火，历久弥坚
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)
+> 📝尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国 (© yhelfman/Getty Images)
