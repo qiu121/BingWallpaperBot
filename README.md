@@ -1,5 +1,5 @@
-# 🔖大地之盐
+# 🔖瞧这对恩爱的情侣
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)
+> 📝两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
