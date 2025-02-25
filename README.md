@@ -1,5 +1,5 @@
-# 🔖墨迹与伪装
+# 🔖风蚀石们的问候
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)
+> 📝砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)
