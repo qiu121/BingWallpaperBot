@@ -1,5 +1,5 @@
-# 🔖在虎穴小憩
+# 🔖天空之镜
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝虎穴寺，不丹 (© Baron Reznik/Getty Images)
+> 📝玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大 (© Mumemories/Getty Images)
