@@ -1,5 +1,5 @@
-# 🔖狂热野生
+# 🔖马蒂·格拉斯狂欢节
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝南黄弯嘴犀鸟，克鲁格国家公园 ，南非 (© Richard Du Toit/Minden Pictures)
+> 📝杰克逊广场，新奥尔良，路易斯安那州，美国 (© SeanPavonePhoto/Getty Images)
