@@ -1,5 +1,5 @@
-# 🔖小睡片刻，再征服世界
+# 🔖大海的非凡造化
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达 (© Gunter Nuyts/Getty Images)
+> 📝努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚 (© joakimbkk/Getty Images)
