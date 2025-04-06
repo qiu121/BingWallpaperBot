@@ -1,5 +1,5 @@
-# 🔖朝圣圣胡安·德·加兹特鲁加特
+# 🔖伦敦最尖锐的地标
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)
+> 📝碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)
