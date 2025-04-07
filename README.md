@@ -1,5 +1,5 @@
-# 🔖伦敦最尖锐的地标
+# 🔖你好，海狸！
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)
+> 📝美洲海狸, Moran, 怀俄明州, 美国 (© Enrique Aguirre Aves/Getty Images)
