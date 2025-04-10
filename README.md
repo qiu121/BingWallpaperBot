@@ -1,5 +1,5 @@
-# 🔖在繁星闪耀之前
+# 🔖野性本能
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)
+> 📝靠近巢穴的红狐幼崽 (© WildMedia/Shutterstock)
