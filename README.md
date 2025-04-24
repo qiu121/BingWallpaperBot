@@ -1,5 +1,5 @@
-# 🔖波罗的海的魔力
+# 🔖崎岖山峰与野性水域
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国 (© Frank Lukasseck/eStock Photo)
+> 📝阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国 (© Wander Photography/Getty Images)
