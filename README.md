@@ -1,5 +1,5 @@
-# 🔖欢迎来到纳布星球！
+# 🔖秀美壮丽的山河
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝西班牙广场，塞维利亚，西班牙 (© Horia Merla/Getty Images)
+> 📝日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)
