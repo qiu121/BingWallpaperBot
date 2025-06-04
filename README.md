@@ -1,5 +1,5 @@
-# 🔖为快乐而刹车
+# 🔖卡拉卢纳海滩, 撒丁岛, 意大利
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)
+> 📝卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)
