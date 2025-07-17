@@ -1,5 +1,5 @@
-# 🔖伊西斯女神的光辉照耀下
+# 🔖追随香气的地平线
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及 (© Ratnakorn Piyasirisorost/Getty Images)
+> 📝瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)
