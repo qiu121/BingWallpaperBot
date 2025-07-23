@@ -1,5 +1,5 @@
-# 🔖天山上的蓝宝石
+# 🔖城中之国
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)
+> 📝梵蒂冈城与圣彼得大教堂，罗马，意大利 (© RudyBalasko/Getty Images)
