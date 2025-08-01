@@ -1,5 +1,5 @@
-# 🔖远离尘嚣
+# 🔖惊喜随时上演
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)
+> 📝皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)
