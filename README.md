@@ -1,5 +1,5 @@
-# 🔖来自山巅的明信片
+# 🔖野性、智慧与奇迹
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)
+> 📝非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)
