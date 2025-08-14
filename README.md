@@ -1,5 +1,5 @@
-# 🔖地球的公开秘密
+# 🔖从山顶俯瞰
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+> 📝皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)
