@@ -1,5 +1,5 @@
-# 🔖成为改变的一“蜂”
+# 🔖眺望大海的高塔
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
+> 📝灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
