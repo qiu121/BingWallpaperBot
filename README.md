@@ -1,5 +1,5 @@
-# 🔖死谷的幽灵
+# 🔖享受宁静
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)
+> 📝边界水域独木舟区荒野区, 明尼苏达州, 美国 (© s.tomas/Shutterstock)
