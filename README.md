@@ -1,5 +1,5 @@
-# 🔖阳光明媚，赶紧打草
+# 🔖准备仰望天空吧！
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
+> 📝蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
