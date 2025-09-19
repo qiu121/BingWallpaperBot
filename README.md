@@ -1,5 +1,5 @@
-# 🔖爱尔兰岛的西端
+# 🔖千般理由，邀您探索
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)
+> 📝千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)
