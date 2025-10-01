@@ -1,5 +1,5 @@
-# 🔖坚持重要的事情
+# 🔖克拉克山脉的回声
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)
+> 📝克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国 (© Robb Hirsch/TANDEM Stills + Motion)
