@@ -1,5 +1,5 @@
-# 🔖水声低语
+# 🔖蓝与白的梦境
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
+> 📝伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)
