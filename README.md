@@ -1,5 +1,5 @@
-# 🔖孢子奇遇记
+# 🔖幽灵之猫
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)
+> 📝欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)
