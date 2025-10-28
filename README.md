@@ -1,5 +1,5 @@
-# 🔖千年秘境
+# 🔖通往石之奇境的大门
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
+> 📝安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)
