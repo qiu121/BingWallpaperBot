@@ -1,5 +1,5 @@
-# 🔖星光下的颤动之树
+# 🔖快节奏时代，别忘了慢下来
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)
+> 📝海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
