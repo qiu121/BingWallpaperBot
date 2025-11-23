@@ -1,5 +1,5 @@
-# 🔖守护江河的佛像
+# 🔖大自然的秘密代码
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
+> 📝马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
