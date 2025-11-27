@@ -1,5 +1,5 @@
-# 🔖让树叶诉说历史
+# 🔖潮起潮落的坚守
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
+> 📝伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
