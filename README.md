@@ -1,5 +1,5 @@
-# 🔖犹他州的时光层叠
+# 🔖高山的悠久历史
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)
+> 📝博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)
