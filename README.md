@@ -1,5 +1,5 @@
-# 🔖柏林，新年之桥
+# 🔖伸个懒腰，迈向新年！
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝除夕夜，奥伯鲍姆桥，柏林，德国 (© spreephoto.de/Getty Images)
+> 📝正在睡觉的北极狐 (© Chansak Joe/Getty Images)
