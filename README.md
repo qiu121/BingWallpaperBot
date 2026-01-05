@@ -1,5 +1,5 @@
-# 🔖王者视野
+# 🔖高角羚群紧急戒备
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝国王山, 楚加奇山脉, 阿拉斯加, 美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+> 📝一群高角羚, 隆多洛齐野生动物保护区, 南非 (© Mint Images/Getty Images)
