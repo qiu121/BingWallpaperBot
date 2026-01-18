@@ -1,5 +1,5 @@
-# 🔖普雷比希托广场上的穹顶
+# 🔖伪装成沙漠的奇境
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)
+> 📝白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)
