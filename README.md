@@ -1,5 +1,5 @@
-# 🔖生而自由，永不驯服
+# 🔖大地凝视着我们
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)
+> 📝乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
