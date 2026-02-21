@@ -1,5 +1,5 @@
-# 🔖光照之处
+# 🔖冬日的低语
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)
+> 📝一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)
