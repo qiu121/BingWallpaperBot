@@ -1,5 +1,5 @@
-# 🔖冰，由内而外透出光芒
+# 🔖一幅壮丽的景象
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝门登霍尔冰川的冰洞，阿拉斯加州，美国 (© Designpics/Adobe Stock)
+> 📝大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)
