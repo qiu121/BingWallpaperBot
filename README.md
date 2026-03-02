@@ -1,5 +1,5 @@
-# 🔖每一步，都是传承
+# 🔖漂浮的传承
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
+> 📝苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)
