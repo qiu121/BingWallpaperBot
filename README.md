@@ -1,5 +1,5 @@
-# 🔖聚光灯下的番红花
+# 🔖古老岩石，现代灯光
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝紫番红花, 里拉七湖, 保加利亚 (© Maya Karkalicheva/Getty Images)
+> 📝格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
