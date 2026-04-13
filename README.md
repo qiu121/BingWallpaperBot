@@ -1,5 +1,5 @@
-# 🔖离开地球的第一步
+# 🔖当灯光熄灭之后
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝城市灯光在下方划过, 拍摄于国际空间站 (© NASA)
+> 📝安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)
