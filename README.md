@@ -1,5 +1,5 @@
-# 🔖跌到谷底？这里可不是。
+# 🔖静谧之巅，喧嚣之景
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)
+> 📝仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)
