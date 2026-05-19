@@ -1,5 +1,5 @@
-# 🔖大厅里的希望
+# 🔖马略卡岛的边缘
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)
+> 📝福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙 (© Allard Schager/Getty Images)
