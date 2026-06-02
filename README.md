@@ -1,5 +1,5 @@
-# 🔖历史的况味
+# 🔖穿行于蓝色之间
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
+> 📝穿越西台吉乃尔湖的公路，青海省，中国 (© Kaicheng Xu/Getty Images)
