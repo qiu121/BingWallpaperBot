@@ -1,5 +1,5 @@
-# 🔖林冠华彩
+# 🔖远古火山的回响
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)
+> 📝阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)
