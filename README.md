@@ -1,5 +1,5 @@
-# 🔖月瞰寰宇
+# 🔖拱影寻踪
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)
+> 📝圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)
