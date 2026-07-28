@@ -1,5 +1,5 @@
-# 🔖仰望芝城，流光溢彩
+# 🔖生机律动，恒久之衡
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)
+> 📝一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)
