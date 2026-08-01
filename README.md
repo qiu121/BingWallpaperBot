@@ -1,5 +1,5 @@
-# 🔖穿越时光的足迹
+# 🔖基拉韦厄火山的威力
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)
+> 📝大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)
