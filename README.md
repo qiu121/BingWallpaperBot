@@ -1,5 +1,5 @@
-# 🔖基拉韦厄火山的威力
+# 🔖色彩鲜艳的船只，历久弥新的传统
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)
+> 📝马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
