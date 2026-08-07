@@ -1,5 +1,5 @@
-# 🔖生死渡口，勇者的史诗
+# 🔖指引船只穿越历史
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
+> 📝圣胡安岛石灰窑灯塔，华盛顿州，美国 (© Edmund Lowe Photography/Shutterstock)
