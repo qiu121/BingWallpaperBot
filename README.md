@@ -1,5 +1,5 @@
-# 🔖绚丽多彩的哥本哈根
+# 🔖值得守护的巨兽
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦 (© emicristea/Getty Images)
+> 📝安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
