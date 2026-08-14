@@ -1,5 +1,5 @@
-# 🔖许个愿吧
+# 🔖为动物脚掌而建，而非行人
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)
+> 📝扎克舒夫附近的野生动物通道，波兰 (© bbsferrari/Getty Images)
