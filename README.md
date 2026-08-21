@@ -1,5 +1,5 @@
-# 🔖鲸群之声
+# 🔖攀登在召唤
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)
+> 📝尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)
