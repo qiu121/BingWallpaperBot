@@ -1,5 +1,5 @@
-# 🔖金秋平分，地坛染黄
+# 🔖火山灰与浪花相遇
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
+> 📝黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙 (© Westend61/Adobe Stock)
