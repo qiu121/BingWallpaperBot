@@ -1,5 +1,5 @@
-# 🔖穿越毛伊岛的绿色隧道
+# 🔖归来的草原巨兽
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国 (© MNStudio/Getty Images)
+> 📝草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)
