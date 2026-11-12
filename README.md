@@ -1,5 +1,5 @@
-# 🔖奇妙纷呈的森林
+# 🔖没有建筑师的建筑杰作
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝大西洋森林，巴西 (© FG Trade/Getty Images)
+> 📝北窗，拱门国家公园，莫阿布，犹他州，美国 (© lightphoto/Getty Images)
