@@ -1,5 +1,5 @@
-# 🔖秋日的保护色
+# 🔖美国西南部的一场雪
 
-![Bing Wallpaper](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
+![Bing Wallpaper](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp)
 
-> 📝红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)
+> 📝日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)
